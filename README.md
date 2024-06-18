@@ -8,3 +8,4 @@ Here are some ideas to get you started:
 - 💬  sou iniciante no JAVA SCRIPT
 - 😄 sei mechercom SCRATCH
 - ⚡ me chmo lucas mas meu apelido é ROBSON:)
+-https://www.linkedin.com/in/lucas-santos-martins-340689314/ ♥♥♥
